@@ -2,3 +2,4 @@
    some in gloss.... But every once in a while you find someone who's iridescent，
    and when you do，
    nothing will ever compare.”
+斯人若彩虹,遇上方知有
